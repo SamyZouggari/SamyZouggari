@@ -1,3 +1,3 @@
 ## Hi there 👋
 
-If you see this post. HIRE ME !
+If you see this post. HIRE ME PLEASE!
